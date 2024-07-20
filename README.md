@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on AIML Projects
 - 📫 How to reach me : alfrednobleindia9@gmail.com
 - 😄 Pronouns: He/Sir
-- ⚡ Fun fact: I will become a great businessman and an affluent Oligarch
+- ⚡ Fun fact: I will become a successful businessman and an accomplished Scientist
 
 <!---
 Alfred-Noble/Alfred-Noble is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
